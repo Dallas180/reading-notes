@@ -8,9 +8,9 @@ Growth Mindset means always having the ability in your mind that you can expand 
 
 **3 reminders to stay in a growth mindset**
 
-1. always stay motivated 
-2. never give up
-3. get a curious mind, look to learn how things work
+1.  always stay motivated 
+2.  never give up
+3.  get a curious mind, look to learn how things work
 
 **The Cincinnati Bengals are the best football team around!**
 
