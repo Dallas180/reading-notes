@@ -14,4 +14,4 @@ Growth Mindset means always having the ability in your mind that you can expand 
 
 **The Cincinnati Bengals are the best football team around!**
 
-[Link to my Github Portfolio http://github.com/dallas180](https://github.com/dallas180)
+[Link to my Github Portfolio http://github.com/dallas180](https://dallas180/github.com)
