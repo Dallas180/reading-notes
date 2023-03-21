@@ -12,4 +12,6 @@ Growth Mindset means always having the ability in your mind that you can expand 
 2. never give up
 3. get a curious mind, look to learn how things work
 
+**The Cincinnati Bengals are the best football team around!**
+
 [Link to my Github Portfolio http://github.com/dallas180](https://github.com/dallas180)
